@@ -1,4 +1,4 @@
-#  
+#  instant Script for my avatar is the best my avatar Script, featuring no clip and auto-sell. Safe and powerful for all your needs.
 
 
 
